@@ -1,4 +1,4 @@
-what is oat meal, as I ponder looking out the window as the beaming violet twilight reflects down on my face. thinking about what it is.
+What is oat meal, as I ponder looking out the window as the beaming violet twilight reflects down on my face. thinking about what it is as I lay restless in my bed. The night is young and those oats are in my mind.
 <!---
 - 👋 Hi, I’m @Untitled-dog
 - 👀 I’m interested in python and java
